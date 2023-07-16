@@ -1,2 +1,1 @@
-# football
-Application which is making football players
+Play my game
