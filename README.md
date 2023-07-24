@@ -1,1 +1,1 @@
-trip light feathers indicate stick list offer belt heading shorter plates image topic enemy immediately
+locate mighty speed joined offer spell know headed order well manner leaving explanation frequently physical
