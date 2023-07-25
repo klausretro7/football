@@ -1,1 +1,1 @@
-locate mighty speed joined offer spell know headed order well manner leaving explanation frequently physical
+forty bark carried flow surface smell difficulty basis activity toward property influence factory stiff apart
