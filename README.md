@@ -1,1 +1,1 @@
-bite design connected definition lose essential pride slope action front labor wild leader entirely dark
+price ever function cow eye feet pony hall should native cattle party leave allow knife
