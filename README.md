@@ -1,1 +1,1 @@
-noun morning shut than merely rain planning organization usual boy luck means shelter black evening
+spider especially center frighten life use smaller until shirt art bone command done voyage blood
