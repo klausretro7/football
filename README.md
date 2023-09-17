@@ -1,1 +1,1 @@
-condition represent perfect hospital still east pretty happily minerals together subject seldom close reason alphabet
+pick clothing rice hour only eaten taught mainly actually sun mark blind year smooth spring
