@@ -1,1 +1,1 @@
-pick clothing rice hour only eaten taught mainly actually sun mark blind year smooth spring
+handle rice rough range fix language shaking refused income youth accident known vowel package bring
