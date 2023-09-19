@@ -1,1 +1,1 @@
-handle rice rough range fix language shaking refused income youth accident known vowel package bring
+corner characteristic sad which remove voice sight easy lake unknown say driving slept affect wild
