@@ -1,1 +1,1 @@
-corner characteristic sad which remove voice sight easy lake unknown say driving slept affect wild
+smell soap hearing grass way natural situation crack buffalo accurate it people wonder strike frog
