@@ -1,1 +1,1 @@
-pencil extra bit instant terrible record drove heading community later card strong secret wall lonely
+lost missing ocean both understanding taken temperature jet cloud handle sum pen poem public hang
