@@ -1,1 +1,1 @@
-lost missing ocean both understanding taken temperature jet cloud handle sum pen poem public hang
+flight vowel hand purpose week lonely zulu full material broke color society depth milk pride
