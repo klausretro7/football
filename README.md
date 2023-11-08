@@ -1,1 +1,1 @@
-saw shells primitive label heavy nuts had shoulder information built compound similar over may represent
+definition foot pink done minerals carbon pure eager positive climb failed discovery without by weigh
