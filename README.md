@@ -1,1 +1,1 @@
-definition foot pink done minerals carbon pure eager positive climb failed discovery without by weigh
+spin swept spirit pink follow slept block lack kept love somebody college diameter settlers along
