@@ -1,1 +1,1 @@
-very difference stranger barn mirror indicate central rest good earth charge source combination pony breath
+lesson observe experience leave east many let degree prize stronger thumb nation roof compound pink
