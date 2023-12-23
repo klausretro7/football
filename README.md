@@ -1,1 +1,1 @@
-lesson observe experience leave east many let degree prize stronger thumb nation roof compound pink
+change store opinion eager southern dawn spread telephone each once airplane war slowly shown ourselves
