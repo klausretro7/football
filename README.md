@@ -1,1 +1,1 @@
-sell potatoes command anywhere society wolf warm story property dug jungle stiff mother attention row
+chicken lesson empty swept fat distance paper story political declared magic shorter pet bell prize
