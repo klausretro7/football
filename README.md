@@ -1,1 +1,1 @@
-chicken lesson empty swept fat distance paper story political declared magic shorter pet bell prize
+limited base flow frequently coat warn scientific sink something frequently studying voyage acres hot globe
