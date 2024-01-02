@@ -1,1 +1,1 @@
-smile voice spell laugh thread gain claws vowel fear scientist police instant return dried origin
+stood especially capital take excited jump outline promised pay plastic own buffalo student gather ourselves
