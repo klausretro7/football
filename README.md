@@ -1,1 +1,1 @@
-stood especially capital take excited jump outline promised pay plastic own buffalo student gather ourselves
+handsome thirty flew captured leather brass fill invented design missing bow certainly instrument island only
