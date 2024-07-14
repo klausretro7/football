@@ -1,1 +1,1 @@
-television pony brass college first article party forth pair appropriate daily interest material completely month
+wait voice foreign even crack snow gentle gently automobile driver move president nation farmer quite
